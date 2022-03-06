@@ -1,4 +1,4 @@
-时光机器最新官网地址：https://sundayo.xyz
+时光机器最新官网地址：https://www.sundayo.xyz/
 
 Tg频道：https://t.me/sundayo_chat
 
